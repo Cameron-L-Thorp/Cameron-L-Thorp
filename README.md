@@ -4,4 +4,4 @@ I love coding🖥️, gaming♟️, Stoicism📚 and horror👾. You can be assu
 Thanks for checking out my projects!
 
 
-![cthulhu logo w alpha M](https://user-images.githubusercontent.com/109598902/190192080-f1efeceb-8235-4cd2-946d-2918b440b685.png)
+![cthulhu logo w alpha M](https://user-images.githubusercontent.com/109598902/190192384-58bbc9b6-7661-4b97-828e-170009949c72.png)
